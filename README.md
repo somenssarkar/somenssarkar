@@ -48,7 +48,7 @@
   - MarTech strategy and implementation
 
   📩 **Let's connect:** [LinkedIn](https://www.linkedin.com/in/somen-sarkar-2466a523/)
-  &nbsp;|&nbsp; [Upwork](#) <!-- Add your Upwork profile link once live -->
+  &nbsp;|&nbsp; [Upwork](#) https://www.upwork.com/freelancers/~01e6e8773ced08b199
 
   ---
 
